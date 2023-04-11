@@ -1,1 +1,5 @@
-# Practica_GitHub hola
+HERNAN
+
+Ramiro Lopez
+MIGUEL BARILARO
+
